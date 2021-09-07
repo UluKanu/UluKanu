@@ -1,6 +1,6 @@
 Aloha , I’m @UluKanu
 - 👀 I’m interested in creating. and playing the game.
-I know.
+
 
 
 
